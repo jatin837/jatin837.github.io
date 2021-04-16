@@ -1,3 +1,0 @@
-# Belongs to Jatin Pandey
-
-
